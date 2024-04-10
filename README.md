@@ -14,3 +14,15 @@
 ![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/08c03cbe-bf18-413c-ac2a-d0f8162affc8)
 8/
 ![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/f773d953-8039-496a-bb8c-1ddc0bbda6a3)
+9.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/7b1f653e-86ed-4cb4-a23d-faca25b3102a)
+10.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/062d80e1-5103-4ff2-bd06-951796cf566e)
+11.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/aeb2bf1d-a8b6-4f8b-8fa8-98af72e133e0)
+12.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/0b336d36-b1f4-4d4f-a3a9-96a483279a04)
+13.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/fb623c71-4ebf-4406-8b26-b28b6b3ebb4d)
+14.
+![image](https://github.com/SonDanh2501/Website-Booking-Pitches/assets/143384517/486d3847-f726-49cc-9ee5-b848075983a4)
